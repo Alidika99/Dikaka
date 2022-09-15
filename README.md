@@ -1,0 +1,2 @@
+# Dikaka
+Kulakukan semampu aku
